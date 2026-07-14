@@ -3,7 +3,7 @@
   <br>
   <tr>
     <td>
-      <img alt="image" src="https://github.com/zyneater/zyneater/blob/main/postal.gif?raw=true"/>
+      <img alt="image" src="https://github.com/zyneater/zyneater/blob/main/pusher-outlast-trials.gif"/>
       <br>
     </td>
   </tr>
