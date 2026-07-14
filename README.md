@@ -1,16 +1,19 @@
-## Hi there 👋
+ ⠀⠀⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀⠀⠀[ꜱᴛʀᴀᴡᴘᴀɢᴇ](https://jjayguin.straw.page/)⠀⠀ ⠀[ꜱᴘᴀᴄᴇʜᴇʏ](https://spacehey.com/jjayguin)⠀⠀ ⠀[ʀᴇɴᴛʀʏ](https://rentry.co/jjayguin)
+<table>
+  <br>
+  <tr>
+    <td>
+      <img alt="image" src="https://i.ibb.co/pBsgYG7p/postal.gif"/>
+      <br>
+    </td>
+  </tr>
+</table>
+</div>
 
-<!--
-**zyneater/zyneater** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+⠀⠀⠀⠀⠀⠀⠀⠀⠀lvl 17,⠀ᴄᴀ,⠀he / him,⠀asd,⠀dpdr,⠀aroace
 
-Here are some ideas to get you started:
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀int⠀.⠀⠀13+,⠀short int,⠀c+h+k+b
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+⠀⠀⠀⠀⠀hobbies⠀.⠀⠀art,⠀gaming,⠀tech n piracy
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀dni⠀.⠀⠀radqueers, asd and did self diagnosers
