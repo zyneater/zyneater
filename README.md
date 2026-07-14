@@ -2,7 +2,7 @@
 
 ⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=zyneater&color=232c24)⠀⠀⠀⠀[ꜱᴛʀᴀᴡᴘᴀɢᴇ](https://jjayguin.straw.page/)⠀⠀⠀⠀[ꜱᴘᴀᴄᴇʜᴇʏ](https://spacehey.com/jjayguin)⠀⠀⠀⠀⠀[ʀᴇɴᴛʀʏ](https://rentry.co/jjayguin)
 
-⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀msgs & art⠀⠀ main profile⠀⠀kins & chars
+⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀msgs & art⠀⠀ main profile⠀⠀kins & chars
 
 ⠀ ⠀⠀
 
