@@ -9,7 +9,9 @@
 
 ⠀ ⠀⠀⠀⠀⠀⠀<img align="center" src="https://github.com/zyneater/zyneater/blob/main/pusher-outlast-trials.gif">
 
-⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀int⠀⠀.⠀ ⠀⠀⠀lvl 17, he him, asd
+⠀
+
+⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀abt⠀⠀.⠀ ⠀⠀⠀lvl 17, he him, asd
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀int⠀⠀.⠀ ⠀⠀⠀13+,⠀short int,⠀c+h+k+b
 
