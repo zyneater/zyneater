@@ -3,7 +3,7 @@
   <br>
   <tr>
     <td>
-      <img alt="image" src="https://i.ibb.co/pBsgYG7p/postal.gif"/>
+      <img alt="image" src="https://github.com/user-attachments/assets/c86e913d-fa5b-4074-8d1a-930e60fe3d8e"/>
       <br>
     </td>
   </tr>
